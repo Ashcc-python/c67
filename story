@@ -27,3 +27,31 @@ Some Yolks made fun of him as they passed.
 
 Others didn’t.
 
+Wally was sure that he wanted a pet.
+
+He talked to his Dad about which pet to get.
+
+
+
+“I want a Monkey who scratches his head!
+
+He’d swing in the house and he’d jump on the bed.”
+
+
+
+“Well,” said his Dad in a kind sort of way, 
+
+“Did you know that monkeys eat bugs everyday?”
+
+
+
+“Oh No,” Wally said, “We have none to eat.”
+
+Mom likes to squash all the bugs with her feet.”
+
+
+
+“Then I want a Hippo!” he screamed to his Dad.
+
+“He’d eat all our trash, and Mom would be glad!”
+
