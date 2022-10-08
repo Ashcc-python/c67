@@ -55,3 +55,24 @@ Mom likes to squash all the bugs with her feet.”
 
 “He’d eat all our trash, and Mom would be glad!”
 
+The wolves in the woods, grow as wild as trees.
+
+They do not say Thank You. They do not say Please. 
+
+They roll in the dirt and they chomp and they growl.
+
+At nighttime they look at the moon and they howl.
+
+But Warren was different, the youngest wolf pup.
+
+He would not go howl. He would not look up. 
+
+
+
+Instead he ran back to his cave to go hide. 
+
+And you would not believe what would happen inside.
+
+
+
+The brightest full moon would cause Warren to change.
